@@ -1,6 +1,6 @@
 ## Identitas
 
-Nama: DWi Ayu Zaskia
+Nama: Dwi Ayu Zaskia
 
 NIM : 607062400034
 
