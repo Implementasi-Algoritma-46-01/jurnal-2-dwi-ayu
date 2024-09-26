@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: DWi Ayu Zaskia
 
-NIM : 
+NIM : 607062400034
 
 ## Instruksi
 
